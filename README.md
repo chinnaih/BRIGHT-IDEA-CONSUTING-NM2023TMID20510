@@ -1,1 +1,2 @@
 # BRIGHT-IDEA-CONSUTING-NM2023TMID20510
+https://1drv.ms/v/s!AixwLkviSGSoforLla5rsqy2Oa8
